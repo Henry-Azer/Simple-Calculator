@@ -1,2 +1,2 @@
 # Simple-Calculator
-![Calc](https://files.fm/u/zbdgjgtv8)
+![Calc](https://fv2-3.failiem.lv/thumb_show.php?i=7wzzkfjyp&view)
